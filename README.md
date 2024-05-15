@@ -4,7 +4,7 @@ Meu nome é Emilly Silva
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 
-  ### entre em contao comigo 📫 :
+  ### Entre em contato comigo 📫 :
 
   00001097836009sp@al.educacao.sp.gov.br
 
